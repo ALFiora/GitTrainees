@@ -24,3 +24,5 @@ Ana Parra passou por aqui!!
 Julia Keiko
 
 dobrou noc! jsem Paulo!
+
+Thiago Araújo
