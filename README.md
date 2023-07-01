@@ -37,4 +37,4 @@ Henrique Marques :P
 
 annie 
 
-Felipe de Arruda passou por aqui (^O^)/
+Felipe de Arruda passou por aqui \(^O^)/
